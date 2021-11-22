@@ -1,11 +1,11 @@
-# 很牛影视www.henniuyingshi.com
+# 很牛影视www.henniushipin.com
 
 
-### 绿色绿色永恒：http://henniu.xyz
+### 导航永久域名：http://henniu.xyz
 
 
 
-### 导航永恒永恒：http://henniudianying.com (海外用户)
+### 导航永久域名：http://henniudianying.com (海外用户)
 
 
 
